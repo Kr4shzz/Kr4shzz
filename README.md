@@ -10,9 +10,8 @@
 
 *Prof X enthusiast* 
 
-I'm into Hlvrai, Half-Life, X-men, Postal, Slenderverse, Roblox myths, and other medias! I'm always open to interact with others, just don't be weird, and don't rush me. I tend to go afk a lot in game, specially if i'm drawing, playing smth or doing anything else, so w2i!! 
+I'm into Hlvrai, Half-Life, X-men, Postal, Slenderverse, Roblox myths, and other medias! I'm always open to interact with others, just don't be weird, and don't rush me. I tend to go afk a lot in game, specially if i'm drawing, playing smth or doing anything else, so w2i(and text me on priv so i can see the message)!! 
 
-if you wanna talk to me pls do it in priv bc of that!!
 
 More info in my strawpage, carrd and pronouns page!!! :]
 
