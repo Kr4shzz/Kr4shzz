@@ -2,13 +2,13 @@
 <img src="https://i.pinimg.com/736x/16/0c/b8/160cb8be89b5859480d91c560ae525c7.jpg" width="300">
 
 𐔌՞ ܸ.ˬ.ܸ՞𐦯  
-# \"𝔎𝔞𝔰𝔭𝔢𝔯/ℭ𝔥𝔞𝔯𝔩𝔢𝔰/𝔉𝔬𝔯𝔷𝔢𝔫"
+# \"𝔎𝔞𝔰𝔭𝔢𝔯/𝔉𝔬𝔯𝔷𝔢𝔫"
 
 ✭ **He • Him** ⚊ _**18y/o**_  ᵎ!ᵎ *infj* +
 
 ≫ *i luv Luni, Pepsi, Penny, Melly, and my other friendz* ! 
 
-*Prof X enthusiast* 
+*Gordon Freeman, Forzen and Prof X enthusiast* 
 
 I'm into Hlvrai, Half-Life, X-men, Postal, Slenderverse, Roblox myths, mcsm and other medias! I'm always open to interact with others, just don't be weird, and don't rush me. I tend to go afk a lot in game, specially if i'm drawing, playing smth or doing anything else, so w2i(and text me on priv so i can see the message)!! 
 
