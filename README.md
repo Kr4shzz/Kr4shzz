@@ -4,7 +4,7 @@
 𐔌՞ ܸ.ˬ.ܸ՞𐦯  
 # \"𝔎𝔞𝔰𝔭𝔢𝔯/𝔉𝔬𝔯𝔷𝔢𝔫"
 
-✭ **He • Him** ⚊ _**18y/o**_  ᵎ!ᵎ *infj* +
+✭ **He • Him** ⚊ _**19y/o**_  ᵎ!ᵎ *infj* +
 
 ≫ *i luv Luni, Pepsi, Penny, Melly, and my other friendz* ! 
 
