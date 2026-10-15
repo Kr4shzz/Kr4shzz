@@ -15,7 +15,7 @@ I'm into Hlvrai, Half-Life, X-men, OFF, Jschlatt, Postal, Slenderverse, Roblox m
 
 DO NOT INTERACT WITH ME IF YOU ARE A PROSHIPPER, DARKSHIPPER, ZOOPHILE, RACIST, NAZI AND BASIC DNI CRITERIA. Oh and specially if you are fronm the TCC fandom, just go tf away.
 
-BEFORE YOU INTERACT WITH ME, I have issues with communicating and i have social anxiety, so i fully apologize if i act dry or plain- I even repeat words so i am really sorry-. PLEASE IF YOU ARE UNDER 17 DO NOT FRIEND ME AND BE CLEAR ABOUT YOUR AGE TOWARDS ME, we can have a friendly chat in game or interact with silly actions with the ponies, but DO NOT ADD ME OR INTERACT FURTHER, and please don't lie about your age either. Last thing uhhh, i'm free ships! jst keep it in the characters and DO NOT flirt with ME if we are not close.
+BEFORE YOU INTERACT WITH ME, I have issues with communicating and social anxiety, so i fully apologize if i act dry, repeat words or plain. PLEASE IF YOU ARE UNDER 17 DO NOT FRIEND ME AND BE CLEAR ABOUT YOUR AGE TOWARDS ME, we can have a friendly chat in game or interact with silly actions with the ponies, but DO NOT ADD ME OR INTERACT FURTHER, but if u feel uncomfortablo abt telling ur age i completely understand tho, just don't lie about your age and retract from interacting. Last thing uhhh, i'm free ships! jst keep it in the characters and DO NOT flirt with ME if we are not close.
 
 More info in my strawpage and socials on my guns page !! :]
 
