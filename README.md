@@ -4,16 +4,20 @@
 𐔌՞ ܸ.ˬ.ܸ՞𐦯  
 # \"𝔎𝔞𝔰𝔭𝔢𝔯/𝔉𝔬𝔯𝔷𝔢𝔫"
 
-✭ **He • Him** ⚊ _**19y/o**_  ᵎ!ᵎ *infj* +
+✭ **He • Him** ⚊ _**9TEEN**_  ᵎ!ᵎ *infj* +
 
-≫ *i luv Luni, Pepsi, Penny, Melly, and my other friendz* ! 
+≫ *"About that beer i owe ya* ! 
 
-*Gordon Freeman, Forzen and Prof X enthusiast* 
+*I'm hyperfixated on hlvrai RLY BAD.* 
 
-I'm into Hlvrai, Half-Life, X-men, Postal, Slenderverse, Roblox myths, mcsm and other medias! I'm always open to interact with others, just don't be weird, and don't rush me. I tend to go afk a lot in game, specially if i'm drawing, playing smth or doing anything else, so w2i(and text me on priv so i can see the message)!! 
+I'm into Hlvrai, Half-Life, X-men, OFF, Jschlatt, Postal, Slenderverse, Roblox myths, mcsm and other medias! if you are into any of these, don't be afraid to interact!! (Respecting my dni please). I tend to go afk a lot in game, specially if i'm drawing, playing smth or doing anything else, so w2i(and text me on priv so i can see the message)!! 
 
 
-More info in my strawpage, carrd and pronouns page!!! :]
+DO NOT INTERACT WITH ME IF YOU ARE A PROSHIPPER, DARKSHIPPER, ZOOPHILE, RACIST, NAZI AND BASIC DNI CRITERIA. Oh and specially if you are fronm the TCC fandom, just go tf away.
+
+BEFORE YOU INTERACT WITH ME, I have issues with communicating and i have social anxiety, so i fully apologize if i act dry or plain- I even repeat words so i am really sorry-. PLEASE IF YOU ARE UNDER 17 DO NOT FRIEND ME AND BE CLEAR ABOUT YOUR AGE TOWARDS ME, we can have a friendly chat in game or interact with silly actions with the ponies, but DO NOT ADD ME OR INTERACT FURTHER, and please don't lie about your age either. Last thing uhhh, i'm free ships! jst keep it in the characters and DO NOT flirt with ME if we are not close.
+
+More info in my strawpage and socials on my guns page !! :]
 
 ⏔⏔⏔ ꒰ ⨂ ꒱ ⏔⏔⏔
 
