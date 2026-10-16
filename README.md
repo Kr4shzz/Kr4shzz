@@ -1,27 +1,26 @@
 <div align="center">
 <img src="https://i.pinimg.com/736x/16/0c/b8/160cb8be89b5859480d91c560ae525c7.jpg" width="300">
 
-𐔌՞ ܸ.ˬ.ܸ՞𐦯  
-# \"𝔎𝔞𝔰𝔭𝔢𝔯/𝔉𝔬𝔯𝔷𝔢𝔫"
+▄︻デ╦═一──
 
-✭ **He • Him** ⚊ _**9TEEN**_  ᵎ!ᵎ *infj* +
+# \"Call me Kasper, Forzen or the name of the pony i am, idm."
+
+✭ **He • Him strictly.** ⚊ _**9TEEN**_  ᵎ!ᵎ *infj* +
 
 ≫ *"About that beer i owe ya* ! 
 
-*I'm hyperfixated on hlvrai RLY BAD.* 
+I'm into Half-Life, hlvrai, X-men, OFF, Jschlatt, Postal, Slenderverse, Roblox myths, mcsm and other medias.
 
-I'm into Hlvrai, Half-Life, X-men, OFF, Jschlatt, Postal, Slenderverse, Roblox myths, mcsm and other medias! if you are into any of these, don't be afraid to interact!! (Respecting my dni please). I tend to go afk a lot in game, specially if i'm drawing, playing smth or doing anything else, so w2i(and text me on priv so i can see the message)!! 
+Mainly Afk in game but you can always jst msg me privately, respecting my dni.
 
 
-DO NOT INTERACT WITH ME IF YOU ARE A PROSHIPPER, DARKSHIPPER, ZOOPHILE, RACIST, NAZI AND BASIC DNI CRITERIA. Oh and specially if you are fronm the TCC fandom, just go tf away.
+DO NOT INTERACT WITH ME IF YOU ARE A PROSHIPPER, DARKSHIPPER, ZOOPHILE, RACIST, NAZI AND BASIC DNI CRITERIA, under 17 and if you are fronm the TCC, just go tf away. 
 
-BEFORE YOU INTERACT WITH ME, I have issues with communicating and social anxiety, so i fully apologize if i act dry, repeat words or plain. PLEASE IF YOU ARE UNDER 17 DO NOT FRIEND ME AND BE CLEAR ABOUT YOUR AGE TOWARDS ME, we can have a friendly chat in game or interact with silly actions with the ponies, but DO NOT ADD ME OR INTERACT FURTHER, but if u feel uncomfortablo abt telling ur age i completely understand tho, just don't lie about your age and retract from interacting. Last thing uhhh, i'm free ships! jst keep it in the characters and DO NOT flirt with ME if we are not close.
-
-More info in my strawpage and socials on my guns page !! :]
+More info in my strawpage and socials on my guns page.
 
 ⏔⏔⏔ ꒰ ⨂ ꒱ ⏔⏔⏔
 
-(art credits: inkzectz !! )
+(art credits: inkzectz ! )
 
 <br>
 
