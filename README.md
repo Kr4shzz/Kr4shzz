@@ -1,9 +1,8 @@
 <div align="center">
 <img src="https://i.pinimg.com/736x/16/0c/b8/160cb8be89b5859480d91c560ae525c7.jpg" width="300">
 
-▄︻デ╦═一──
 
-# \"KRASHZZ."
+# \"▄︻デ╦═一── "
 
 ✭ **He • Him strictly.** ⚊ _**9TEEN**_  ᵎ!ᵎ *infj* +
 
