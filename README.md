@@ -3,7 +3,7 @@
 
 ▄︻デ╦═一──
 
-# \"Call me Kasper, Forzen or the name of the pony i am, idm."
+# \"KRASHZZ."
 
 ✭ **He • Him strictly.** ⚊ _**9TEEN**_  ᵎ!ᵎ *infj* +
 
