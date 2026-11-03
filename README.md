@@ -8,14 +8,16 @@
 
 ≫ *"About that beer i owe ya* ! 
 
-I'm into Half-Life, hlvrai, X-men, OFF, Jschlatt, Postal, Slenderverse, Roblox myths, mcsm and other medias.
+I'm into Half-Life, hlvrai, Total Drama Island, iots, X-men, OFF, Jschlatt, Postal, Slenderverse, Roblox myths, mcsm and other medias.
+
+Main kins are Gordon Feetman, Cody Anderson, Forzen, Tommy coolatta, Barney Calhoun + others.
 
 Mainly Afk in game but you can always jst msg me privately, respecting my dni.
 
 
-DO NOT INTERACT WITH ME IF YOU ARE A PROSHIPPER, DARKSHIPPER, ZOOPHILE, RACIST, NAZI AND BASIC DNI CRITERIA, under 17 and if you are fronm the TCC, just go tf away. 
+DO NOT INTERACT WITH ME IF YOU ARE A PROSHIPPER, DARKSHIPPER, ZOOPHILE, RACIST, NAZI AND BASIC DNI CRITERIA, TCC FANS. Under 17 can interact but slightly please.
 
-More info in my strawpage and socials on my guns page.
+More info in my strawpage and gunz.
 
 ⏔⏔⏔ ꒰ ⨂ ꒱ ⏔⏔⏔
 
