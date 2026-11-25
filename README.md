@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://media.discordapp.net/attachments/1224737164043096096/1574554682280378439/TOMZEEEENN_T.png?ex=6b080c12&is=6b06ba92&hm=cdba2bba923f8e05b7215a031e0d3a3d2319fbbf4eb69049481ae52712b6bafb&format=webp&quality=lossless&width=1024&height=989" width="300"> 
+<img src="https://media.discordapp.net/attachments/1534004662816997528/1575200630622916760/imagen_2026-11-25_142428973-removebg-preview.png?ex=6b086b68&is=6b0719e8&hm=45d30a3d5c47a15492ae0eab04977658a33367ed57680acc9219554fd8a248ab&format=webp&quality=lossless" width="250">  <img src="https://media.discordapp.net/attachments/1224737164043096096/1574554682280378439/TOMZEEEENN_T.png?ex=6b080c12&is=6b06ba92&hm=cdba2bba923f8e05b7215a031e0d3a3d2319fbbf4eb69049481ae52712b6bafb&format=webp&quality=lossless&width=1024&height=989" width="300"> <img src="https://media.discordapp.net/attachments/1534004662816997528/1575200630622916760/imagen_2026-11-25_142428973-removebg-preview.png?ex=6b086b68&is=6b0719e8&hm=45d30a3d5c47a15492ae0eab04977658a33367ed57680acc9219554fd8a248ab&format=webp&quality=lossless" width="250">
 
 
 
@@ -26,7 +26,7 @@ More info in my strawpage and gunz.
 
 <br>
 
-<img src="https://media.discordapp.net/attachments/1253917878911242290/1575180691677642832/7660985E-4123-469E-9613-F5CBB99FD7F9.png?ex=6b0858d6&is=6b070756&hm=6f6ca49338cbc9431cf8ba864823b13b6fb67fd6163c88fd06a94533eb2d7d8b&format=webp&quality=lossless" width="300">
+<img src="https://media.discordapp.net/attachments/1253917878911242290/1575180691677642832/7660985E-4123-469E-9613-F5CBB99FD7F9.png?ex=6b0858d6&is=6b070756&hm=6f6ca49338cbc9431cf8ba864823b13b6fb67fd6163c88fd06a94533eb2d7d8b&format=webp&quality=lossless" width="300"> <img src="https://media.discordapp.net/attachments/1253917878911242290/1575180691677642832/7660985E-4123-469E-9613-F5CBB99FD7F9.png?ex=6b0858d6&is=6b070756&hm=6f6ca49338cbc9431cf8ba864823b13b6fb67fd6163c88fd06a94533eb2d7d8b&format=webp&quality=lossless" width="300"> <img src="https://media.discordapp.net/attachments/1253917878911242290/1575180691677642832/7660985E-4123-469E-9613-F5CBB99FD7F9.png?ex=6b0858d6&is=6b070756&hm=6f6ca49338cbc9431cf8ba864823b13b6fb67fd6163c88fd06a94533eb2d7d8b&format=webp&quality=lossless" width="300">
 <br><br>
 
 ✦ ─────────────── ✦
