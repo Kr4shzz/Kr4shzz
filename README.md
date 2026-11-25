@@ -11,14 +11,14 @@
 
 I'm into Half-Life, hlvrai, Total Drama, iots, X-men, OFF, Jschlatt, Postal, Slenderverse, Roblox myths, mcsm and other medias.
 
-Main kins are Gordon Feetman, Cody Anderson, Forzen, Tommy coolatta, Barney Calhoun + others.
-
-Mainly Afk in game but you can always jst msg me privately, respecting my dni.
+Mainly Afk in game but you can always jst msg me privately, i swear i don't bite.
 
 
-DO NOT INTERACT WITH ME IF YOU ARE A PROSHIPPER, DARKSHIPPER, ZOOPHILE, RACIST, NAZI AND BASIC DNI CRITERIA, TCC FANS. Under 17 can interact but slightly please.
+Please don't interact with me if you are a Proshiper/Darkshiper, Basic dni criteria (Racist, Homophobe, Pedos, zoos, etc.), TCC, If you ship Freemance/Valhoun, Rogueneto, Coderra and JohnJane(roblox myths). If you are under 17 avoid to interact with me please.
 
-More info in my strawpage and gunz.
+I don't mind ships, but please ask first.
+
+More info in my strawpage and my socials on my guns page, You can add me if you want, no need to ask.
 
 ⏔⏔⏔ ꒰ λ ꒱ ⏔⏔⏔
 
@@ -29,7 +29,7 @@ More info in my strawpage and gunz.
 <img src="https://media.discordapp.net/attachments/1253917878911242290/1575180691677642832/7660985E-4123-469E-9613-F5CBB99FD7F9.png?ex=6b0858d6&is=6b070756&hm=6f6ca49338cbc9431cf8ba864823b13b6fb67fd6163c88fd06a94533eb2d7d8b&format=webp&quality=lossless" width="300"> <img src="https://media.discordapp.net/attachments/1253917878911242290/1575180691677642832/7660985E-4123-469E-9613-F5CBB99FD7F9.png?ex=6b0858d6&is=6b070756&hm=6f6ca49338cbc9431cf8ba864823b13b6fb67fd6163c88fd06a94533eb2d7d8b&format=webp&quality=lossless" width="300"> 
 <br><br>
 
-✦ ─────────────── ✦
+✦ ─────────────── ✦ Cool stuff ✦ ─────────────── ✦
 
 </div>
 
