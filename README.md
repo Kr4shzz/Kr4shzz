@@ -26,7 +26,7 @@ More info in my strawpage and gunz.
 
 <br>
 
-<img src="https://media.discordapp.net/attachments/1253917878911242290/1575180691677642832/7660985E-4123-469E-9613-F5CBB99FD7F9.png?ex=6b0858d6&is=6b070756&hm=6f6ca49338cbc9431cf8ba864823b13b6fb67fd6163c88fd06a94533eb2d7d8b&format=webp&quality=lossless" width="300"> <img src="https://media.discordapp.net/attachments/1253917878911242290/1575180691677642832/7660985E-4123-469E-9613-F5CBB99FD7F9.png?ex=6b0858d6&is=6b070756&hm=6f6ca49338cbc9431cf8ba864823b13b6fb67fd6163c88fd06a94533eb2d7d8b&format=webp&quality=lossless" width="300"> <img src="https://media.discordapp.net/attachments/1253917878911242290/1575180691677642832/7660985E-4123-469E-9613-F5CBB99FD7F9.png?ex=6b0858d6&is=6b070756&hm=6f6ca49338cbc9431cf8ba864823b13b6fb67fd6163c88fd06a94533eb2d7d8b&format=webp&quality=lossless" width="300">
+<img src="https://media.discordapp.net/attachments/1253917878911242290/1575180691677642832/7660985E-4123-469E-9613-F5CBB99FD7F9.png?ex=6b0858d6&is=6b070756&hm=6f6ca49338cbc9431cf8ba864823b13b6fb67fd6163c88fd06a94533eb2d7d8b&format=webp&quality=lossless" width="300"> <img src="https://media.discordapp.net/attachments/1253917878911242290/1575180691677642832/7660985E-4123-469E-9613-F5CBB99FD7F9.png?ex=6b0858d6&is=6b070756&hm=6f6ca49338cbc9431cf8ba864823b13b6fb67fd6163c88fd06a94533eb2d7d8b&format=webp&quality=lossless" width="300"> 
 <br><br>
 
 ✦ ─────────────── ✦
@@ -42,4 +42,4 @@ More info in my strawpage and gunz.
 ⏔⏔⏔ ꒰ λ ꒱ ⏔⏔⏔
                                                                             
 <div align="center">
-<img src="https://media.discordapp.net/attachments/1534004662816997528/1574635097267900446/BEYBLAAADNOLIN.png?ex=6b0856f6&is=6b070576&hm=6dddd673ac5c39d4e727e6e74369623ff31672cf3e1f4513a041ad4a5acc2715&format=webp&quality=lossless&width=1024&height=811" width="300">
+<img src="https://media.discordapp.net/attachments/1224737164043096096/1575211189959397477/CODY_SMOLLL.png?ex=6b08753d&is=6b0723bd&hm=429bf2a29338312499245aa27fcc9928f21c411debb3c74239fcf10d13d11162&format=webp&quality=lossless&width=1024&height=1005" width="300">
