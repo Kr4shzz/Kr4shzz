@@ -1,5 +1,5 @@
 <div align="center">
-<img src="https://i.pinimg.com/736x/16/0c/b8/160cb8be89b5859480d91c560ae525c7.jpg" width="300">
+<img src="https://media.discordapp.net/attachments/1253917878911242290/1575180691677642832/7660985E-4123-469E-9613-F5CBB99FD7F9.png?ex=6b0858d6&is=6b070756&hm=6f6ca49338cbc9431cf8ba864823b13b6fb67fd6163c88fd06a94533eb2d7d8b&format=webp&quality=lossless" width="300">
 
 
 # \"▄︻デ╦═一── "
@@ -8,7 +8,7 @@
 
 ≫ *"About that beer i owe ya* ! 
 
-I'm into Half-Life, hlvrai, Total Drama Island, iots, X-men, OFF, Jschlatt, Postal, Slenderverse, Roblox myths, mcsm and other medias.
+I'm into Half-Life, hlvrai, Total Drama, iots, X-men, OFF, Jschlatt, Postal, Slenderverse, Roblox myths, mcsm and other medias.
 
 Main kins are Gordon Feetman, Cody Anderson, Forzen, Tommy coolatta, Barney Calhoun + others.
 
@@ -19,13 +19,13 @@ DO NOT INTERACT WITH ME IF YOU ARE A PROSHIPPER, DARKSHIPPER, ZOOPHILE, RACIST, 
 
 More info in my strawpage and gunz.
 
-⏔⏔⏔ ꒰ ⨂ ꒱ ⏔⏔⏔
+⏔⏔⏔ ꒰ λ ꒱ ⏔⏔⏔
 
-(art credits: inkzectz ! )
+(art by me :p ! )
 
 <br>
 
-<img src="https://i.pinimg.com/736x/64/12/a8/6412a8e0afb327742a54d43c701a08a5.jpg" width="300">
+<img src="https://media.discordapp.net/attachments/1253917878911242290/1574982084391342120/TRANSGORD.png?ex=6b08489e&is=6b06f71e&hm=d7fdeb94e2c160c9656aa60ed8fb247e9fafe0c1640553e50d6e950dfa8098fc&format=webp&quality=lossless&width=641&height=1024" width="300"> 
 
 <br><br>
 
